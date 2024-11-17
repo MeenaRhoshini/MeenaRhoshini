@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning to code & develop in multiple programming languages
 - 💞️ I’m looking to collaborate on ... I am still thinking 😅
 - 📫 How to reach me: Linkedin ID: https://www.linkedin.com/in/meena-rhoshini-703441257
-- 😄 Pronouns: She (I am a female)
+- 😄 Pronouns: She
 - ⚡ Fun fact: I might look serious than I actually am 🤪
